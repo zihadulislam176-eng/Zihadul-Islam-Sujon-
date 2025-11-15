@@ -1,2 +1,2 @@
-# Zihadul-Islam-Sujon-
+# ZihadulIslamSujon
 Personal website for knowledge sharing 
